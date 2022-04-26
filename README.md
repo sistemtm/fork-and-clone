@@ -6,3 +6,4 @@ My favorite ice cream flavors:
 
 - Peppermint Stick
 - Mint Chip
+- Watermelon
