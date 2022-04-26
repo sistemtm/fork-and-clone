@@ -7,3 +7,9 @@ My favorite ice cream flavors:
 - Peppermint Stick
 - Mint Chip
 - Watermelon
+
+Îngheţatele preferate pentru mariusinfobv:
+
+- pepene galben
+- vişine
+- fructe de pădure
